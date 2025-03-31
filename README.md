@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Popluid
 - 👀 I’m interested in AI, Gaming, Art, Human rights
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ... Little Things
 - 💞️ I’m looking to collaborate on LGBTIQ+ rights
 - 📫 How to reach me VoidCat@outlook.com - Popluid/steam
 - 😄 Pronouns: He, Him, She, Her, It
